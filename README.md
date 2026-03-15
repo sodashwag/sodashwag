@@ -1,2 +1,2 @@
-## https://blacksquares.atabook.org/
+## https://blacksquares.atabook.org/ go sign!
  
