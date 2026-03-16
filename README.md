@@ -1,9 +1,7 @@
 ## https://blacksquares.atabook.org/ go sign!
  
-![1000003161](https://github.com/user-attachments/assets/775b4acf-d68a-429f-8bfe-32468b205724)
+
 ![1000003160](https://github.com/user-attachments/assets/9f67e5d1-e52d-416f-9357-622a6fbc0ca3)
-![1000003156](https://github.com/user-attachments/assets/68cf28ed-2836-4f18-aec1-9cb5e84b72db)
-![1000003153](https://github.com/user-attachments/assets/cdc8c774-5945-4fda-ab6c-264a1fd3bec3)
 ![1000003155](https://github.com/user-attachments/assets/999ea9cb-0bab-498f-9337-010ed7f0b401)
 ![1000003152](https://github.com/user-attachments/assets/9a6748c8-e127-467b-bee6-ce4084cfa6fb)
 ![1000003150](https://github.com/user-attachments/assets/0c1f3684-f103-472f-a6e5-625884808971)
