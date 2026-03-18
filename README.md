@@ -10,3 +10,6 @@
 ## trains
 ## ocean
 ## fossils and archeology!
+
+
+## note: also dont take heavy insp my skins and building please! if heavy inspo will be blockd
