@@ -4,6 +4,9 @@
 
 ## i like anything about:
 ## horses
+## history
+## countries
+## planes
 ## trains
 ## ocean
 ## fossils and archeology!
